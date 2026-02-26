@@ -5,8 +5,8 @@
   <img width="400" height="342" src="https://i.pinimg.com/originals/81/ad/ef/81adef4e33b359945e5f11117166b5fc.gif">
     
 <p align="center"> <img width="380" height="380" src="https://pixelsafari.neocities.org/dividers/more/cakes.gif">
- <p align="center">      𝐻𝑒𝑎𝑑 𝑡𝑜 𝑚𝑎𝑖𝑛 𝑓𝑜𝑟 𝑚𝑜𝑟𝑒
-<p align="center">       “𝑊𝑜𝑢𝑙𝑑 𝑦𝑜𝑢 𝑔𝑢𝑦𝑠 𝑙𝑖𝑘𝑒 𝑡𝑜 𝑠𝑒𝑡 𝑠𝑎𝑖𝑙 𝑜𝑛 𝑡ℎ𝑖𝑠 𝑜𝑐𝑒𝑎𝑛 𝑜𝑓 𝑓𝑙𝑎𝑣𝑜𝑟 𝑤𝑖𝑡ℎ 𝑚𝑒?”
+ <p align="center">      𝘏𝘦𝘢𝘥 𝘵𝘰 𝘮𝘢𝘪𝘯 𝘧𝘰𝘳 𝘮𝘰𝘳𝘦
+<p align="center">       “𝙄𝙩❜𝙨 𝙊𝙣𝙚 𝙏𝙝𝙞𝙣𝙜 𝙏𝙤 𝙌𝙪𝙚𝙨𝙩𝙞𝙤𝙣 𝙔𝙤𝙪𝙧 𝙈𝙞𝙣𝙙; 𝙄𝙩❜𝙨 𝘼𝙣𝙤𝙩𝙝𝙚𝙧 𝙏𝙤 𝙌𝙪𝙚𝙨𝙩𝙞𝙤𝙣 𝙔𝙤𝙪𝙧 𝙀𝙮𝙚𝙨 𝘼𝙣𝙙 𝙀𝙖𝙧𝙨.”
     <p align="center">  <img width="100" height="100" src="https://pixelsafari.neocities.org/blinkies/animal/900million.gif"> <img width="100" height="100" src="https://pixelsafari.neocities.org/blinkies/animal/catsand.gif">
 <img width="100" height="100"src="https://pixelsafari.neocities.org/blinkies/carebecause.gif">
 <p align="center"> <img width="380" height="380" src="https://pixelsafari.neocities.org/dividers/dogs.gif">
